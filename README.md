@@ -1,2 +1,3 @@
 # hello-world
-new try.
+hey homos!
+ i am crap at introductins so i will pass)
